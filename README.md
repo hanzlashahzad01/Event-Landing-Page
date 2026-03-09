@@ -12,3 +12,11 @@
 
 <img width="1919" height="1030" alt="performance or register" src="https://github.com/user-attachments/assets/2124c50a-c7ad-4573-a697-5acc3cefc62b" />
 
+## 📬 Connect with Me
+I'm always open to discussing new projects, creative ideas, or opportunities to be part of your visions.
+
+Email: hanzlashahzadhanzlashahzad@gmail.com
+
+LinkedIn: https://www.linkedin.com/in/hanzla-shahzad
+
+GitHub: https://github.com/hanzlashahzad01/hanzlashahzad01
